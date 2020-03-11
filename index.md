@@ -1,5 +1,5 @@
 ## my name is peter 
-![download (1)](https://user-images.githubusercontent.com/59803854/76439978-317b7580-638b-11ea-98c2-c55da1c71119.jpg)
+![240px-Lionel_Messi_20180626](https://user-images.githubusercontent.com/59803854/76447450-b1f3a380-6396-11ea-98c2-790ec27a9664.jpg)
 
 # favorite sport
 my favorite sport is soccer
